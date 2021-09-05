@@ -1,3 +1,2 @@
 - Hi, I’m @137shoebills
-- QQ: 1356298972
-- feel deeply, feel tenderly
+- QQ: 1356298972 
